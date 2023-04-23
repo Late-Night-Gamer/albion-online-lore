@@ -1,6 +1,4 @@
-# Albion Online's History
-
-Original: [https://albiononline.com/lore/history](https://albiononline.com/lore/history)
+# သမိုင်းကြောင်း
 
 ## လွန်ခဲ့သော နှစ်ပေါင်း ၁၈၀၀
 
